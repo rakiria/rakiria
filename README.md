@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @rakiria
+- 👀 I’m interested in ... doing a project for class that I made a git account for
